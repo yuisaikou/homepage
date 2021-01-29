@@ -1,4 +1,5 @@
 * blog：[团子天下第一](https://xn--4gqva209dwmcyydi46e.com/)
+* diary：[日记](https://daybyday3014.lofter.com/)
 * game：[假的steam](https://sbeam3014.lofter.com/)
 * bangumi：[番组补全计划](https://www.kdocs.cn/l/slCY0BEdRc0Y)
 * Tumblr01：[瞎画一下](https://ix3014.tumblr.com)
