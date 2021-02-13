@@ -4,5 +4,6 @@
 * game：[假的steam](https://sbeam3014.lofter.com/)
 * Tumblr1：[img](https://ix3014.tumblr.com/)
 * Tumblr2：[project](https://sfhj.tumblr.com/)
+* mal：[MyAnimeList](https://myanimelist.net/profile/ix3014)
 * other：[其他](https://mubu.com/doc/ohi7iYuhSQ)
 
